@@ -1,8 +1,12 @@
-Heithorn
+Galdor Forest
 
-The great forests of Heithron are a breathtaking sight to behold, filled with towering trees that reach towards the sky. The canopy is thick and lush, and the air is filled with the sweet scent of flowers and the rich earthy aroma of the forest floor.
+The great Galdor Forest are a breathtaking sight to behold, filled with towering trees that reach towards the sky. The canopy is thick and lush, and the air is filled with the sweet scent of flowers and the rich earthy aroma of the forest floor.
 
-One of the most prominent tree species in Heithron is the Longhorn Tree. These massive trees are easily identifiable by their long, curved branches that resemble the horns of a great beast. They can grow up to 200 feet tall, and their bark is rough and deeply grooved.
+One of the most prominent tree species in Heithron is the Longhorn Tree. These massive trees are easily identifiable by their long, curved branches that resemble the horns of a great beast. They can grow up to 60 meters tall, and their bark is rough and deeply grooved.
+
+The Longhorn tree was a special species that only grew in the Galdor Forest. Its leaves were long and pointed, with a distinct curve at the tip that resembled the horns of a majestic beast. The bark was rough and dark, with deep grooves that made it easy for the tree to absorb moisture from the earth.
+
+The Elysterians held the Longhorn tree in high regard, as it was not only a source of nourishment but also had medicinal properties. The sap of the Longhorn tree was used to treat various ailments, and its wood was prized for its durability and strength. The sap is easiest to collect from the smaller sappings spread across the forest floor.
 
 Another species found in the forest is the Silverleaf Tree. These tall and slender trees have a silver-gray bark that shines in the sunlight. Their leaves are small and delicate, and they rustle in the breeze like a soft whisper.
 
