@@ -63,7 +63,7 @@ Alfred looked at her with a smile and said: “Let´s go then, I´m ready for an
 
  
 Chapter II
-The Journey to Xerraa
+ The Journey to Xerraa
 
 The wind gently caressed the tall grass around Lazarous, he was sitting in the middle of a sea of grass, smelling and feeling his surroundings. He felt the warmth of the moist soil beneath him, and the warm sun above him. What a perfect day he thought to himself, what a perfect day to do some training. He listened and heard the gentle purring he had gotten so used to. Beside him laid a huge black and brown striped Cerlion, a giant creature from the Felidae family. Creatures not familiar with the Great Plains would think of it as a giant muscular tiger, with longer and more agile legs.
 The huge animal laid beside Lazarous and looked at him caringly, they had a bond for life. Ever since Lazarous met her and challenged her on the great plains they had been together. Today they were going for a hunt, their target was the rather calm but fast Yarl bird, with its long legs and neck, made for speed. One of Eleentar´s favorite prays, but for now she was enjoying the sun and the gentle breeze blowing through her fur.
